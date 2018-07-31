@@ -1,1 +1,0 @@
-# ritualservice.github.io
